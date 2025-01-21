@@ -1,1 +1,1 @@
-# pnso-krzyszkowski-wojciech-git
+# pnso-krzyszkowski-wojciech-gitnowe zmiany w pliku
